@@ -28,6 +28,7 @@
 สามารถเข้าไปดู รายละเอียด และ วีดีโอนำเสนอ ของโปรเจค  BITCOIN ANALSYSIS เพิ่มเติมได้ที่ เว็บไซต์ข้างล่าง
 
 #### [WEBSITE](http://www.it.kmitl.ac.th/~it61070245/project/index.html)
+#### [YOUTUBE](https://www.youtube.com/)
 
 # ☀ Member
 
